@@ -1,0 +1,1 @@
+We (Mobility Club) retain all rights for the images and content uplodaded to this repository. The re-use, reproduction, and modification (commercial or non-commercial) of these assets is not allowed without the consent of the project owners.
